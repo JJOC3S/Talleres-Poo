@@ -1,1 +1,1 @@
-![Diagrama](https://github.com/JJOC3S/Talleres-Poo/assets/166523819/19ac1e65-9580-481a-b9cf-bbdb92d186d9)
+![image](https://github.com/JJOC3S/Talleres-Poo/assets/166523819/4939cd3f-e9dc-44b7-b95c-053ac5b4586a)
